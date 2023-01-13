@@ -1,0 +1,18 @@
+# Harry Dean Stanton
+
+## Career
+Stanton appeared in indie and cult films (Cockfighter, Two-Lane Blacktop, Escape from New York, Repo Man), as well as many mainstream Hollywood productions, including Cool Hand Luke, The Godfather Part II, Alien, Red Dawn, Alpha Dog, Pretty in Pink, Stephen King's Christine, and The Green Mile. He was a favorite actor of the directors Sam Peckinpah, John Milius, David Lynch, and Monte Hellman, and was also close friends with Francis Ford Coppola and Jack Nicholson. He was best man at Nicholson's wedding in 1962.
+
+He made his first television appearance in 1954 in Inner Sanctum. He played Stoneman in the Have Gun – Will Travel 1959 episode "Treasure Trail", credited under Dean Stanton. He made his film debut in 1957 in the Western Tomahawk Trail. He appeared (uncredited) as a complaining BAR man at the beginning of the 1959 film Pork Chop Hill starring Gregory Peck. Then in 1962 he had a very small part in How the West Was Won, portraying one of Charlie Gant's (Eli Wallach) gang. The following year he had a minor role as a poetry-reciting beatnik in The Man from the Diner's Club. Early in his career he took the name Dean Stanton to avoid confusion with the actor Harry Stanton.
+
+His breakthrough part came with the lead role in Wim Wenders' Paris, Texas (1984). Playwright Sam Shepard, who wrote the film's script, had spotted Stanton at a bar in Santa Fe, New Mexico in 1983 while both were attending a film festival in that city. The two fell into conversation. "I was telling him I was sick of the roles I was playing," Stanton recalled in a 1986 interview. "I told him I wanted to play something of some beauty or sensitivity. I had no inkling he was considering me for the lead in his movie." Not long afterward, Shepard phoned him in Los Angeles to offer Stanton the part of the protagonist, Travis, "a role that called for the actor to remain largely silent ... as a lost, broken soul trying to put his life back together and reunite with his estranged family after having vanished years earlier."
+
+Stanton was a favorite of film critic Roger Ebert, who said that "no movie featuring either Harry Dean Stanton or M. Emmet Walsh in a supporting role can be altogether bad." However, Ebert later admitted that Dream a Little Dream (1989), in which Stanton appeared, was a "clear violation" of this rule.
+
+## Early life
+
+Stanton had two younger brothers, Archie and Ralph, and a younger half-brother, Stanley McKnight. His family had a musical background. Stanton attended Lafayette High School and the University of Kentucky in Lexington where he performed at the Guignol Theatre under the direction of British theater director Wallace Briggs, and studied journalism and radio arts. "I could have been a writer," he told an interviewer in a 2011 documentary, Harry Dean Stanton: Crossing Mulholland, in which he sings and plays the harmonica. "I had to decide if I wanted to be a singer or an actor. I was always singing. I thought if I could be an actor, I could do all of it." Briggs encouraged him to leave the university and become an actor. He studied at the Pasadena Playhouse in Pasadena, California, where his classmates included his friends Tyler MacDuff and Dana Andrews.
+
+Stanton was born in West Irvine, Kentucky, to Sheridan Harry Stanton, a tobacco farmer and barber and Ersel (née Moberly), a cook. His parents divorced when Stanton was in high school; both later remarried.
+
+During World War II, Stanton served in the United States Navy, including a stint as a cook aboard the USS LST-970, a Landing Ship, Tank, during the Battle of Okinawa.
